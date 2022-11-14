@@ -1,4 +1,4 @@
-								Hey There! 🙋🏻‍♀️
+Hey There! 🙋🏻‍♀️
 
 Here's a little something about me: 
 - 😃 I love to code, dance and paint
